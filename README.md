@@ -1,0 +1,7 @@
+# messrs
+MESSRS SEGUN AND SEGUN LEGAL PRACTITIONERS is a highly respected family firm and are proud to be trusted advisor to a wide range of clients including private and family owned companies, charitable organisations, high net worth individuals, property developers and banking and financial institutions to name a few. 
+
+It was founded by Oluwasegunfunmi Jacob Onakoya (Life Bencher) in 1974. Until his demise in 2015 he was the Principal Partner of the Firm and an active member of the Nigerian Bar Association (NBA) both at Branch Level (Lagos Branch) and the National Level.  He served as Secretary of the Lagos state branch as well as the National Secretary of the Nigerian Bar Association in 1987.  It was a distinguishing period in the history of the NBA. He was also an active member of the International Bar Association (IBA).	
+
+The firm is well established in Lagos (Nigeria), the financial and commercial centre of the country and has a branch office in Ogun State, Nigeria. The firm is committed to providing high quality advice to its clientele, training and development of its staff. The firm has reciprocal relationships with reputable law firms around the world, who partner the firm in executing international matters. The firm is also well known in international circles especially the International Bar Association where the Firm has participated actively for the past twenty years, and where the Founding Partner once served as a Member of Council and the Chairman of the African Regional Forum of that Body.
+
